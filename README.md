@@ -1,0 +1,1 @@
+# trapped_major_ranking
